@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing 
 - 📫 How to reach me nah leave it
 - 😄 Pronouns: he and him
-- ⚡ Fun fact: im still a student 🤫
+- ⚡ Fun fact: im still a student in class 7 🤫
 
 <!---
 GG-TOAST/GG-TOAST is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
