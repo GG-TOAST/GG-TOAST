@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @GG-TOAST
 - 👀 I’m interested in web Building 
 - 🌱 I’m currently learning java script 
-- 💞️ I’m looking to collaborate nothing 
+- 💞️ I’m looking to collaborate on nothing 
 - 📫 How to reach me nah leave it
 - 😄 Pronouns: he and him
 - ⚡ Fun fact: im still a student 🤫
